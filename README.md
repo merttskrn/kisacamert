@@ -1,0 +1,2 @@
+# kisacamert
+Köylü milletin efendisidir.
